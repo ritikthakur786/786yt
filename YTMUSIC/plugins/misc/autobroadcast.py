@@ -36,7 +36,7 @@ Oғғɪᴄɪᴀʟ  Bᴏᴛs.:-
 ╭⎋@odsmusic_bot
 ╰⊚𝐀ʟɪᴠᴇ✅
 
-╭⎋@siya_music_robot
+╭⎋@siyasongbot
 ╰⊚𝐀ʟɪᴠᴇ✅
 
 ╭⎋@Spotify_Muxic_bot
